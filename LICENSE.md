@@ -1,4 +1,4 @@
-# 
+# professional NFT Flip Bot for nft sniper bot | take-profit & volume-analysis is the best nft sniper bot, featuring take-profit and volume-analysis. Fast, smart, and optimized for
 
 
 
